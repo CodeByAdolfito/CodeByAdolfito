@@ -28,7 +28,6 @@
 - 🚀 **Copilot**
 
 ### 🌍 Idiomas y metas
-- Me encanta hablar portugués 🇵🇹  
 - A futuro quiero aprender inglés 🇺🇸 y portugués 🇵🇹
 
 ### 🌟 Frase que me representa
